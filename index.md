@@ -7,8 +7,9 @@ We are filthy in love! Let's get some rice thrown on us.
 Parker And Skye 2027
 
 Bison Lodge
+9430 Scona Rd NW, Edmonton, AB T6E 3W4
 
-Parking in Parking lot. 
+
 
 Colours :
 
