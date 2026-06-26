@@ -1,3 +1,4 @@
 ---
-title: Welcome to my blog!
+title: Sparky
 ---
+We are filthy in love! Let's get some rice thrown on us.
